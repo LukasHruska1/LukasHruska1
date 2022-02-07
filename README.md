@@ -4,6 +4,6 @@
 
 - Especially Linux and red teaming
 
-#### I ❤️ *voleball* and *video games**
+#### I ❤️ *voleball* and *video games*
 
 [SSPŠ]: https://www.ssps.cz/
