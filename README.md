@@ -6,4 +6,6 @@
 
 #### I ❤️ *voleball* and *video games*
 
+#### My favourite PC game is *Counter-Strike Global Ofensive*
+
 [SSPŠ]: https://www.ssps.cz/
