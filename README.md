@@ -8,7 +8,7 @@
 
 #### My favourite PC game is **Counter-Strike Global Ofensive**
 
-**#### Contact me on my Instagram [IG]**
+#### **Contact me on my Instagram [IG]**
 #### Or you can add me on Discord mamradkolecka#7662
 
 [SSPŠ]: https://www.ssps.cz/
