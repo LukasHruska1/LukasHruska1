@@ -10,9 +10,9 @@
 
 #### My favourite PC game is **Counter-Strike Global Ofensive**
 
-#### **Contact me on my Instagram [IG]**
+#### **Contact me on my [Instagram]**
 #### Or you can add me on Discord mamradkolecka#7662
 
 [SSPŠ]: https://www.ssps.cz/
 [HackTheBox account]: https://app.hackthebox.com/challenges
-[IG]: https://www.instagram.com/lukasek_proste_/?hl=en
+[Instagram]: https://www.instagram.com/lukasek_proste_/?hl=en
